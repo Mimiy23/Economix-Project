@@ -1,1 +1,1 @@
-# Economix-Project
+# Economix Project
